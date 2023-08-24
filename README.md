@@ -242,6 +242,6 @@
 - 이주원: joowon0410@gmail.com
 - 봉선호: sh525293@gmail.com
 - 문승미: mun75056@gmail.com
-- 최예은: oloer12@gmail.com
+- 최예은: choiyeah123@gmail.com
 - 손행원: thsgoddnjs@gmail.com
 <br>
